@@ -2,7 +2,7 @@
 - 👀 I’m interested in Marine Fisheries Technolgy
 - 🌱 I’m currently learning Fisheries Management, Data-Limited Fisheries, MSE
 - 💞️ I’m looking to collaborate on Developer abaout MERA (Method Evaluation and Risk Assessment)
-- 📫 How to reach me: you can send me email: fauzifauzi@apps.ipb.ac.id or fauziandikabung@gmail.com
+- 📫 How to reach me: you can send me email: fauzifauzi@apps.ipb.ac.id or fauziandikabunga@gmail.com
 - 😄 Pronouns: Fauzi
 - ⚡ Fun fact: ...
 
